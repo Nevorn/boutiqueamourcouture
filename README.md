@@ -1,2 +1,2 @@
 # boutiqueamourcouture
-jewelry and accessories
+Jewelry and Accessories
